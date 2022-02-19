@@ -1,1 +1,1 @@
-# education
+# educational consideration
